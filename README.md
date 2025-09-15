@@ -1,1 +1,1 @@
-gaming club
+ gaming CLUB
